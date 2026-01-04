@@ -37,7 +37,7 @@ At its heart, novel asks whether art can redeem an unfulfilled existence, or whe
 
 ## Novel
 
-### Chapter One
+### Chapter 1
 
 >What is this life if, full of care,  
 > We have no time to stand and stare.
