@@ -35,6 +35,28 @@ As John’s pursuit of “inspiration” grows more desperate, he turns his gaze
 
 At its heart, novel asks whether art can redeem an unfulfilled existence, or whether it becomes just another means of avoiding it. John’s failure to write is not a lack of discipline, but of sincerity. In trying to create meaning without having lived it, he annihilates both art and self. His story ends not with revelation, but with quiet ruin — a man who mistook the idea of life for life itself.
 
+### Questions to sharpen structure
+
+1. What does Gillian want at the start that John endangers? (Peace, family, renewal, intimacy?)
+
+2. What illusion is John testing with each experience — freedom, authenticity, artistic legitimacy?
+
+3. After the cigarette, what’s the next incremental transgression before the holiday? Something that feels justified but slightly dishonest?
+
+4. Who sees John’s change first — Gillian, Jo, or Alex — and how do they respond?
+
+5. How does John narrate these acts to himself: as rebellion, as research, as healing?
+
+6. What happens on the holiday that proves his alienation rather than simply depicting it?
+
+7. When does Jo become complicit — through silence, curiosity, or pity?
+
+8. What does the final betrayal teach John in the moment (not later reflection)?
+
+9. After the ruin, what remains — silence, shame, or still the hunger to turn it into material?
+
+10. Is the blank page at the end emptiness, or the first honest state he’s ever reached?
+
 ## Novel
 
 ### Chapter 1
